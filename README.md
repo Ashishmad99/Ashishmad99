@@ -6,7 +6,7 @@
 
 - 🔭 I’m a **Data Engineer**
 
-- 💬 LinkedIn **https://www.linkedin.com/in/ansh-lamba-793681184/](https://www.linkedin.com/in/ashish-kumar-gupta-4330a41aa/**
+- 💬 LinkedIn **https://www.linkedin.com/in/ashish-kumar-gupta-4330a41aa/**
 
 
 
